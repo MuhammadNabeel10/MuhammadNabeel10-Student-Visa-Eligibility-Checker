@@ -1,1 +1,0 @@
-# MuhammadNabeel10-Student-Visa-Eligibility-Checker
